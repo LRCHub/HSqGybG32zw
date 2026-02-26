@@ -1,0 +1,62 @@
+# Nothing But Thieves – Impossible
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Took a breath, let it go
+Felt the moment settle so
+I couln't wait to tell you why
+I'm standin' here
+with this awkward smile
+And that's because
+I could drown myself in someone
+like you
+I could dive so deep
+I never come out
+I thought it was impossible
+But you make it possible
+Love,
+it stings and then it laughs
+At every beat of
+my battered heart
+The sudden jolt, a tender kiss
+I know I'm gonna die of this
+And that's because
+I could drown myself in someone
+like you
+I could dive so deep
+I never come out
+I thought it was impossible
+But you make it possible
+I'll take the smooth
+with the rough
+Feels so fucked up to be in love
+Another day, another night
+Stuck in my own head
+but you pull me out
+You pull me out
+I could drown myself in someone
+like you
+I could dive so deep
+I never come out
+I thought it was impossible
+But you make it possible
+Somebody told me and I think
+they're right
+There is a change on its way
+tonight
+And I feel it's so
+But I fear it though
+Somebody told me and I think
+they're right
+There is a change on its way
+tonight
+And I feel it's so
+And I feel it so
+I could drown myself in someone
+like you
+I could dive so deep
+I never come out
+I thought it was impossible
+But you make it possible
+```
